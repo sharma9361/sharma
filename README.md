@@ -1,2 +1,2 @@
-# sharma
-Don't know
+i want to become a developer 
+please help me
